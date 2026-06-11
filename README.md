@@ -1,6 +1,6 @@
 <div align="center">
 
-# 🎉 Congratulations ChrisVibez! 🎉
+# 🎉 Congratulations ChrisVibez the king! 🎉
 
 <img src="https://octodex.github.com/images/welcometocat.png" height="200px" />
 
